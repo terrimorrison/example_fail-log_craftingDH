@@ -12,4 +12,4 @@ My [first annotation](https://hyp.is/8NgdlHH6EemyKIMFaG_6Yw/workbook.craftingdig
 ## Third Annotation
 
 ## Comments/Concerns
-I still have no clue what the DH Box thing is, but I have an account ¯\_(ツ)_/¯
+I still have no clue what the DH Box thing is, but I have an account ¯\\\_(ツ)_/¯
