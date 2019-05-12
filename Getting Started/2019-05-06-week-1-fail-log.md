@@ -9,6 +9,8 @@ My [first annotation](https://hyp.is/8NgdlHH6EemyKIMFaG_6Yw/workbook.craftingdig
 
 ## Second Annotation
 
+My [second annotation](https://hyp.is/IrCz1nToEemPohPRlHbBRQ/workbook.craftingdigitalhistory.ca/introduction/crafting-digital-history/) was about annotations. I wondered if instead of asking the same question someone else asked, if I could refer to their annotation instead in my fail log and build off of it with my own ideas. I thought I saw something about it the other day, but I couldn't find it again. I was wondering about this because of [this annotation](https://hyp.is/FhDMDnDuEemuymfhkFAccA/workbook.craftingdigitalhistory.ca/introduction/crafting-digital-history/) which was something I had been wondering myself. 
+
 ## Third Annotation
 
 ## Comments/Concerns
