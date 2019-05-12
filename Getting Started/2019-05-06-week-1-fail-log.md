@@ -1,4 +1,4 @@
-# Week 1 fail log
+# Week 1 Fail Log
 I have no idea what I'm doing!!!!!
 
 There's a lot of stuff going on, and it's all very stressful. I feel like I'm forgetting something? 
