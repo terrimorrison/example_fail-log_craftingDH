@@ -3,6 +3,8 @@ I have no idea what I'm doing!!!!!
 
 There's a lot of stuff going on, and it's all very stressful. I feel like I'm forgetting something? 
 
+It says on the submission thing that I don't have to submit anything for this week (??) but I'm doing it anyways for practice. 
+
 ## First Annotation
 
 My [first annotation](https://hyp.is/8NgdlHH6EemyKIMFaG_6Yw/workbook.craftingdigitalhistory.ca/introduction/crafting-digital-history/) was about trial and error for Hypothes.is. I have been using Opera as a browser since I got my laptop because Chrome had glitches with Windows 10 when I first got it, but Opera doesn't have as many things nice things as Chrome (like Hypothes.is, apparently) so for the duration of the class I'll be using Chrome. At least the glitch seems to be fixed! 
